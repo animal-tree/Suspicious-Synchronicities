@@ -28,4 +28,6 @@ Even if rationally my research has a chance of causing an irrational exuberance 
 
 The only interpretation remaining is that  “something” doesn’t want me to do the work. And since “something” hasn’t and won’t remediate the unjustified damages it did to me — except potentially by that work the moral and personal purpose of which “something” defeats — I’m left with only a unique proof that “something” is morally bad and that I am isolated from everyone else in having gone through these unprecedented physicist-confounding interventions by “something”, which is not a God, which is not a wisdom, which is not a power that deserves my faith or participation in whatever world that “something” rules. 
 
-And though stubborn readers with short-duration memories might not follow why the standard belief in a good God would've been disproven under the knowledge and memory that I’ve observed/claimed, nor why a bad “something” would've been proven, my observation — including from humility from a skepticism of myself — is contradicted if otherwise. 
+And though stubborn readers with short-duration memories might not follow why the standard belief in a good God would've been disproven under the knowledge and memory that I’ve observed/claimed, nor why a bad “something” would've been proven, my observation — including from humility from a skepticism of myself — is contradicted if otherwise[^1].
+
+[^1]: if this is where things ended, since at time of writing, I was planning suicide. 
