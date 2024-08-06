@@ -1,4 +1,4 @@
-> This presumes knowledge of a lot of unspecified context, such as the specific evidence that something exists in the first place and [why "evil" by itself isn't necessarily normally attributable to what that something is](https://github.com/animal-tree/Writing-stuff-2/blob/main/Theories/Cosmogenesis-Myth-2.md), but in this case literally is.
+> This presumes knowledge of a lot of unspecified context, such as the specific evidence that something exists in the first place and [why "evil" by itself isn't necessarily normally attributable to what that something is](https://github.com/animal-tree/SuspiciousnessofSynchronicitiesAndParanoia/blob/Ancillary/Cosmogenesis-Myth.md), but in this case literally is.
 
 ### Analysis why “something” — that something which others perhaps refer to as God or which I have referred to as God, or the universe, or powers that be — isn’t just ruthless, but also bad. 
 
